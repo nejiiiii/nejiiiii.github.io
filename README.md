@@ -3,7 +3,7 @@ Owned by Francesca Panliboton Chabanel-A
 
 ### Cuties
 
-![alt text](tumblr_5bf5f4582d967a100f92376af941b8be_f8cdb326_640.jpg)
+![alt text](shogun.jpg)
 
 ```markdown
 Syntax highlighted code block
