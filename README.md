@@ -4,6 +4,7 @@ Owned by Francesca Panliboton Chabanel-A
 ### Cuties
 
 1. Ei
+
 ![shogun](https://user-images.githubusercontent.com/99946928/158114255-27da2232-fd30-4c36-8dc4-260fcdbefd54.jpg)
 
 2. Yae Miko
